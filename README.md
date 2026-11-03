@@ -1,2 +1,1 @@
-# proyectox
-hoja de vida
+
